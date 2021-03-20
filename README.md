@@ -6,3 +6,11 @@ Please do not use this for any harmful use, anything you do witrh this I am not 
 If there is a file then that site most likely exists, for example, a folder named "instagram", then "login.gb.net/instagram" exists.
 
 If you have any questions reach out to me by email, you can find it on my account page.
+
+[Instagram](https://login.gb.net/instagram)
+
+[Facebook](https://login.gb.net/facebook)
+
+[Twitter](https://login.gb.net/twitter)
+
+[Snapchat](https://login.gb.net/snapchat)
